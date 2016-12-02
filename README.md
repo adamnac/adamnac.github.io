@@ -1,1 +1,0 @@
-# adamnac.github.io
